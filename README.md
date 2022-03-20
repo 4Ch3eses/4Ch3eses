@@ -1,0 +1,4 @@
+- Hi, my nickname is 4Ch3ese i lovely all cheeses in the world less you gorgonzola.. I really hate u. 
+- I've been a programming student for 4 months, my first programming language is kotlin, but I'm migrating to python
+- Born in Brazil, i have 17 years , i love games, animes and technology.
+- hope we have fun =)
